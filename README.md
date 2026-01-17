@@ -1,0 +1,2 @@
+# motivational_interviewing_infographic
+動機づけ面接図解
